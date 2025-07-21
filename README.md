@@ -1,0 +1,1 @@
+Airbnb is a leading online platform that enables users to reserve accommodations globally. The platform's spectrum ranges from single rooms and shared spaces to full apartments and houses. Its user-centric design serves as a bridge for seamless property rentals, eliminating the need for intermediaries or significant capital investments.
